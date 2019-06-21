@@ -13,3 +13,5 @@ Honestly, it's overwhelming... But it's beautiful and captivating at the same ti
 
 So get ready to hear my updates from time to time because I plan to bore you all with my knowledge until you become interested in what I'm doing.
 Esé gaan ni.  
+
+So I have decided to add something I saw in passing the other time. So I am just gonna add this. Temitopeyewande.txt.
